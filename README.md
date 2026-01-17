@@ -1,15 +1,25 @@
 
+
+
+
+ᅠ ᅠ
+
+
+
+
+
+
  
- ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ   ᅠ ᅠ ᅠ ᅠᅠ ᅠ ᅠ
+ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ ᅠ   ᅠ ᅠ ᅠ ᅠ
  
-                      
- 
+                 
  
  <p align="center">
   <img src="https://github.com/definiteIy-maybe/definiteIy-maybe/blob/main/56f10e576548af5a79a20b5459a1f2d0.jpg" alt="cr" width="300"/>
 </p
                    ᅠ ᅠ
-
+                   
+ᅠshe's in a family full of eccentrics
 ᅠ ᅠ ᅠ
 
 
