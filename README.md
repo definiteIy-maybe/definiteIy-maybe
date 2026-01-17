@@ -6,7 +6,7 @@
  
  
  <p align="center">
-  <img src="https://github.com/definiteIy-maybe/definiteIy-maybe/blob/main/61gDSh5eYeL.jpg" alt="cr" width="800"/>
+  <img src="https://github.com/definiteIy-maybe/definiteIy-maybe/blob/main/61gDSh5eYeL.jpg" alt="cr" width="700"/>
 </p
                    ᅠ ᅠ
 
